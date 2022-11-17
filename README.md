@@ -1,0 +1,1 @@
+# Ayol-yoki-Arkakligini-aniqlab-Salom-beruvhi-dastur
